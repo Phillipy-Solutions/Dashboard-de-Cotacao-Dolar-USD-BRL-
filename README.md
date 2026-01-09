@@ -1,0 +1,1 @@
+# Dashboard-de-Cota-o-do-D-lar-USD-BRL-
